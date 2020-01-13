@@ -13,6 +13,10 @@ SHAKED Remix
 -   [Trap Remix - Bass Boosted](https://www.youtube.com/watch?v=xeWb4iHn_qU)
 -   [(The Megamix) – Rihanna - Justin Bieber - AGrande & More](https://www.youtube.com/watch?v=3jl3eZXa4kI)
 
+Instrumental
+------------------------------
+-   [Piano Karaoke / Sing Along / Cover with Lyrics](https://www.youtube.com/watch?v=Al8LYWuAX1s)
+
 With lyrics
 ------------------------------
 -   [Official Video](https://www.youtube.com/watch?v=NtGgj5zhM84)
